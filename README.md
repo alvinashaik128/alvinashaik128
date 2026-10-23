@@ -53,8 +53,8 @@ More projects coming soon! 🚀
 ## 📫 Connect With Me
 
 - 💻 GitHub: **Shaik Alvina**
-- 🔗 LinkedIn: *Add your LinkedIn profile here*
-- 📧 Email: *Add your email here*
+- 🔗 LinkedIn: *Alvina shaik*
+- 📧 Email: *alvinashaik128@gmail.com*
 
 ## ⭐ Thank You!
 
